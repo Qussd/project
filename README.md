@@ -17,3 +17,4 @@
 
 ###  важные ссылки
  вставить в сайт (https://www.youtube.com/channel/UCFuBWNNWrvnW99mxDzAHdrw)
+ контакты telegram @ganzexc
